@@ -32,7 +32,7 @@
   <h1>GK Choppa – Visionary Entrepreneur & Philanthropist</h1>
   <p><strong>Full Name:</strong> GK Choppa</p>
   <p><strong>Date of Birth:</strong> August 2, 1999</p>
-  <p><strong>Net Worth:</strong> $20 Million USD</p>
+  <p><strong>Net Worth:</strong> $200 Million USD</p>
   <p><strong>Industries:</strong> Real Estate, Technology, Investment, and Trading</p>
   
   <h2>Companies</h2>
@@ -43,6 +43,12 @@
   </ul>
   
   <h2>Background & Achievements</h2>
+  
+  Gk choppa born (Prince Geofrey Kimera) was born in 1999, uganda , Kampala to Geofrey kikulwe and Sarah muwanguzi L kikulwe. A muganda by tribe, he belongs to the Buganda Royal Family ( Balangira Clan).
+  
+  Gk choppa has a degree in computer science from (DUT) Durban University of Technology 
+  
+  
   <p>GK Choppa is a visionary entrepreneur and investor known for his leadership in real estate, technology, and financial markets. With a degree in Computer Science, he has built multiple businesses by combining innovation with wealth creation.</p>
   <p>As a philanthropist, GK Choppa is recognized for his generosity and humanitarian efforts. During the COVID-19 crisis, he aided countless individuals across South Africa, Kenya, Rwanda, Uganda, and Tanzania, establishing his reputation as a business leader with a heart.</p>
   
