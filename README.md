@@ -44,7 +44,7 @@
   
   <h2>Background & Achievements</h2>
   
-  Gk choppa born (Prince Geofrey Kimera) was born in 1999, uganda , Kampala to Geofrey kikulwe and Sarah muwanguzi L kikulwe. A muganda by tribe, he belongs to the Buganda Royal Family ( Balangira Clan).
+  Gk choppa born (Prince Geofrey Kimera) was born in 1999, uganda , Kampala to  Prince Geofrey kikulwe and Sarah muwanguzi L kikulwe. A muganda by tribe, he belongs to the Buganda Royal Family ( Balangira Clan).
   
   Gk choppa has a degree in computer science from (DUT) Durban University of Technology 
   
