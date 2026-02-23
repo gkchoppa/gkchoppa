@@ -42,6 +42,45 @@
     <li><strong>CEO of GK Choppa Property Investment</strong> – A real estate empire with high-value properties.</li>
   </ul>
   
+  
+  
+  
+  
+  
+  GK Choppa ( Prince Geofrey Kimera) Biography
+
+
+Founder & CEO | Investor | Philanthropist
+Born: Prince Geoffrey Kimera Date of Birth: 02 August 1999 Nationality: Ugandan Education: Degree in Computer Science Estimated Net Worth: USD 200 Million
+⸻
+Overview
+GK Choppa is a Ugandan entrepreneur, technologist, and philanthropist whose work blends business leadership, innovation, and community upliftment. With formal training in computer science, he applies technology-driven thinking across real estate, construction, and digital innovation, while maintaining a strong commitment to direct community support, including food and financial donations.
+⸻
+Philanthropy & Community Upliftment
+GK Choppa is widely recognized for hands-on philanthropy, personally supporting communities through: • Food donations to underserved households • Financial assistance to individuals and families in need • Empowerment-focused support, prioritizing dignity, opportunity, and long-term impact
+His approach emphasizes uplifting individuals and communities, not charity alone.
+⸻
+Business & Impact Platforms
+GK Choppa Property Investments A real estate and construction enterprise focused on acquisition, development, selling, and construction of residential and commercial properties, while creating employment and supporting local economies.
+GK Choppa Foundation The philanthropic arm dedicated to community upliftment, food security initiatives, financial relief, and empowerment programs.
+28th Gold A technology and innovation hub specializing in app development, digital platforms, and modern tech solutions.
+Family wealth
+
+Gk Choppa (Prince Geofrey Kimera) financial foundation is also strengthen by family wealth built over generations, including legacy assets, land holdings .
+Royal Heritage & Family Lineage
+GK Choppa traces his heritage to the Buganda Royal Family (Balangira Clan), a lineage historically associated with leadership, service, and governance within the Buganda Kingdom.
+Parents • Mother: Sarah Muwanguzi Kikulwe • Father: Prince Geoffrey Kikulwe
+Grandparents & Ancestral Line • Namagembe Alexier • Joswa Misango (Yoswa Misango) was Treasurer of king Daudi chaw of Buganda and also one of the most successful man of that time etc… • Sir Apollo Kagwa was one of the most powerful leaders in Buganda history, katikiro (prime minister) of Buganda, he helped sign the 1900 Agreement, played a big role in shaping modern Buganda’s political structure and also wrote important history books abt Buganda ete
+      .     Mama Jibwa misango was one one the eldest doughter of sir Apollo kagwa and the wife of Joswa misango she grow in lubiri mengo (king place mengo) and her job was to rise king Daudi Chaw of Buganda.
+• Yoswa Jjunko • King Kateregga of Buganda was one of the greatest king of Buganda, he was a warrior and helped expand Buganda territory and solidify the central authority of the monarchy etc…
+This heritage strongly influences GK Choppa’s values of leadership, responsibility #gkchoppa 
+  
+  
+  
+  
+  
+  
+  
   <h2>Background & Achievements</h2>
   
   Gk choppa born (Prince Geofrey Kimera) was born in 1999, uganda , Kampala to  Prince Geofrey kikulwe and Sarah muwanguzi L kikulwe. A muganda by tribe, he belongs to the Buganda Royal Family ( Balangira Clan).
