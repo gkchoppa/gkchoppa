@@ -73,7 +73,7 @@ Parents • Mother: Sarah Muwanguzi Kikulwe • Father: Prince Geoffrey Kikulwe
 Grandparents & Ancestral Line • Namagembe Alexier • Joswa Misango (Yoswa Misango) was Treasurer of king Daudi chaw of Buganda and also one of the most successful man of that time etc… • Sir Apollo Kagwa was one of the most powerful leaders in Buganda history, katikiro (prime minister) of Buganda, he helped sign the 1900 Agreement, played a big role in shaping modern Buganda’s political structure and also wrote important history books abt Buganda ete
       .     Mama Jibwa misango was one one the eldest doughter of sir Apollo kagwa and the wife of Joswa misango she grow in lubiri mengo (king place mengo) and her job was to rise king Daudi Chaw of Buganda.
 • Yoswa Jjunko • King Kateregga of Buganda was one of the greatest king of Buganda, he was a warrior and helped expand Buganda territory and solidify the central authority of the monarchy etc…
-This heritage strongly influences GK Choppa’s values of leadership, responsibility #gkchoppa 
+This heritage strongly influences GK Choppa’s values of leadership, responsibility #gkchoppa @gkchoppa 
   
   
   
